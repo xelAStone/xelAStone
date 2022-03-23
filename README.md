@@ -1,11 +1,8 @@
 - 👋 Hola mundo, soy @xelAStone
-- 👀 I’m interested in read ...
-- 🌱 I’m currently learning python ...
+- 💀 Imaginación, razón e intuición 💀
+🌑🌒🌓 Refugio de nuestras formas 🌕🌖🌗
 - 💞️ and if death you,i wanna death with you...
-- 📫 How to reach me ...
-xelAStone/xelAStone is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+🦠xelAStone/xelAStone is a ✨
 <h1>We are not street we are the future</h1>
 
 <a>Meridance💯🧠🦾🌎</a>
